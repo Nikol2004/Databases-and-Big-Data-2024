@@ -49,7 +49,3 @@ Nikol Tushaj
 Rajla Culli  
 Chloe Monique Quevedo  
 Lina Kolevska
-
----
-
-Thanks for reading — and happy streaming! 🎶
